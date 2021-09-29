@@ -2,8 +2,8 @@
 
 Quantium provides this program.
 
-## [Certificate of Completion](https://insidesherpa.s3.amazonaws.com/completion-certificates/Quantium/NkaC7knWtjSbi6aYv_Quantium_zEdLKmMSBsBPSazdf_completion_certificate.pdf) 
-![image](https://user-images.githubusercontent.com/52568892/97493639-46654300-1933-11eb-85d6-b2a93f0ca064.png)
+## [Certificate of Completion]
+[NkaC7knWtjSbi6aYv_Quantium_cA5bWBCeYEcvkQ7WZ_1632811503817_completion_certificate.pdf](https://github.com/maulanaakbardj/Quantium_Virtual_Internship/files/7252444/NkaC7knWtjSbi6aYv_Quantium_cA5bWBCeYEcvkQ7WZ_1632811503817_completion_certificate.pdf)
 
 ## Who is Quantium?
 
