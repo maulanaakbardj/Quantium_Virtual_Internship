@@ -3,7 +3,8 @@
 Quantium provides this program.
 
 ## [Certificate of Completion]
-[NkaC7knWtjSbi6aYv_Quantium_cA5bWBCeYEcvkQ7WZ_1632811503817_completion_certificate.pdf](https://github.com/maulanaakbardj/Quantium_Virtual_Internship/files/7252444/NkaC7knWtjSbi6aYv_Quantium_cA5bWBCeYEcvkQ7WZ_1632811503817_completion_certificate.pdf)
+
+![Capture](https://user-images.githubusercontent.com/67249292/135282229-c1a4ee19-184e-4ce2-abfb-4cde619d3ec7.JPG)
 
 ## Who is Quantium?
 
